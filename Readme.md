@@ -1,0 +1,1 @@
+Este docuemtno tiene el contenido de la informacion del planteamiento realizado.
